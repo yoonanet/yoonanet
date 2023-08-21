@@ -1,5 +1,5 @@
 # Contact Me
-### ✉️ asas7715@naver.com
+### 📩 asas7715@naver.com
 ### 🤓 [PORTFOLIO](https://www.notion.so/109ee7e9ed7e4c498adc31c5a75a29c8?v=30e44d95b9e141d5bd076793cc7ff111&pvs=4)
 
 <!--
